@@ -9,4 +9,4 @@ Free Fire Tournament App, Earn Money by Playing Games, FF Rewards App, Best Espo
 * 🎧 ২৪/৭ এডমিন সাপোর্ট।
 
 ### 📥 অ্যাপটি ডাউনলোড করুন:
-[এখানে আপনার APK ফাইলের লিঙ্কটি দিন]
+[https://www.mediafire.com/file/deo17uuk1si66sg/FF_TOURNAMENT_PLAYGROUND.apk/file]
